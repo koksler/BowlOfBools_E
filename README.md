@@ -1,2 +1,6 @@
 # BowlOfBools_E
-Mall in the Ball
+
+*We are the rebels*
+***But we do nothing, lol***
+
+==*YEAH*==
